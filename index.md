@@ -1,3 +1,3 @@
 # Test
-  * Download
+  * [Eicar.com](eicar.com)
   * Download
